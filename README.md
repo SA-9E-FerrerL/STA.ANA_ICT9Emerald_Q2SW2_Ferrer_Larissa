@@ -1,0 +1,1 @@
+# STA.ANA_ICT9Emerald_Q2SW2_Ferrer_Larissaa
